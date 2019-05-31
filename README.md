@@ -1,1 +1,0 @@
-# cooperkernan.github.io
